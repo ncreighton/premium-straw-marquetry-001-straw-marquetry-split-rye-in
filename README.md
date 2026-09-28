@@ -1,0 +1,2 @@
+# premium-straw-marquetry-001-straw-marquetry-split-rye-in
+Tired of scattered notes, loose design sketches, and lost project inspiration for your straw marquetry work? The Straw Marquetry &amp; Split Rye Inlay Craft Hub consolidates every technique, pattern, material source, and finished piece into one organized Notion workspace—so you can focus on creating, not searching.  This Notion template transforms how
